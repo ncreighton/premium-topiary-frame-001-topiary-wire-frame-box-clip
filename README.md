@@ -1,0 +1,2 @@
+# premium-topiary-frame-001-topiary-wire-frame-box-clip
+Spending hours sketching topiary wireframes and hunting for the perfect clip shapes across multiple tools? The Topiary Wire Frame &amp; Box Clip Shape Hub consolidates your entire design system into one beautifully organized Notion workspace.  This comprehensive template eliminates the friction of managing topiary frames, wire structures, and box clip
